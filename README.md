@@ -1,0 +1,1 @@
+# Zoznam-OVM-s-aktivovanou-schrankou
